@@ -1,0 +1,1 @@
+# curso-fullstack-ter-a-as-19-00
